@@ -25,4 +25,4 @@ Code Geass masterfully blends action, strategy, and drama. Every episode keeps y
 
 **Rating: ∞/10**
 
-[Code Geass]((https://codegeass.fandom.com/wiki/Lelouch_vi_Britannia))
+[Code Geass](https://codegeass.fandom.com/wiki/Lelouch_vi_Britannia)
